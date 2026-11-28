@@ -59,7 +59,7 @@ Mahasiswa Teknik Informatika di **Universitas Muslim Indonesia (UMI)** di Makass
 ## 🌐 Kontak & Tautan
 
 * **Email:** [muhammadalbanyarif07@gmail.com](mailto:muhammadalbanyarif07@gmail.com)
-* **GitHub:** [albnyarf](https://github.com/albnyarf)
+* **GitHub:** [albnywrld](https://github.com/albnywrld)
 * **Instagram:** [@albnyarf](https://instagram.com/albnyarf) • [@glaticoo](https://instagram.com/glaticoo)
 * **TikTok:** [@losglctcoss](https://tiktok.com/@losglctcoss)
 * **Spotify:** [Spotify Profile](https://open.spotify.com/)
